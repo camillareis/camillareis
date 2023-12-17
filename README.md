@@ -3,7 +3,7 @@
 🎓 I’m am PhD student, researcher and teaching assitant at the Institute for General Management and Organization at Graz University of Technology.
 My research interests are widely spread, but my foci lie in technology-based business models, contextual ambidexterity in software development companies, and technology management.
 
-🪴 In my free time I love to take care of my plants 📚 read memoirs and fiction.
+🪴📚 In my free time I love to take care of my plants and read memoirs and fiction.
 
 📱 You can also find me on LinkedIn.
 
